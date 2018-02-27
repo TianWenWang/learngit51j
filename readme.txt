@@ -1,1 +1,1 @@
-Charles is a good man.
+Charles is a nice man.
